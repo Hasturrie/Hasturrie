@@ -1,25 +1,14 @@
-i deadass give up 😭 why my github images not working anymore bruh
-<p align="center"> <img width="600" height="600" src="https://i.pinimg.com/736x/92/fd/cb/92fdcbf75f91a11c2424e6370c0651b2.jpg"> </p>
-
-<p align="right"> . ꜱᴛᴀᴍᴘꜱ ɪ ʟɪᴋᴇ ^_^ ᴀɴᴅ ꜱᴏɴɢ 
-
-<p align="left"> <img width="100" height="60" src="https://64.media.tumblr.com/7f4698b67e0c08745637f9e9be8f9484/78f0cc0c088af555-97/s100x200/c9c860d7957fe44b2f650eab2ab1783eb4f9975e.gifv"> </p>
-<p align="right"> '. ʏᴏᴜ ᴡᴀɴᴛ ᴛʜᴇ ᴀᴄᴄʟᴀɪᴍ , ᴛʜᴇ ᴍᴏᴛʜᴇʀ ᴏꜰ ᴍᴏᴛʜᴇʀꜱ .' - ᴀᴄʜɪʟʟᴇꜱ ᴄᴏᴍᴇ ᴅᴏᴡɴ .
-  <p align="left"> <img width="100" height="60" src="https://64.media.tumblr.com/60c247eb12cc673e4180e1145226c4bb/8d8807c6f7bc6874-fc/s250x400/efc6aa0aba99d57063d639366d6b28e35d7bb064.pnj"> </p>
-<p align="right"> '. ᴀɴᴅ ᴍʏ ᴅᴇᴀʀ ᴘᴀᴘᴀ ɢᴀᴠᴇ ᴍᴇ ʟᴇꜱꜱᴏɴꜱ ᴏꜰ ʀᴇɢʀᴇᴛ , ʜᴇ ꜱᴀɪᴅ ᴀʟʟ ᴛʜᴀᴛ ʜᴇ ᴅɪᴅ ᴡᴏᴜʟᴅ'ᴠᴇ ʙᴇᴇɴ ɴᴏᴛʜɪɴɢ ɪꜰ ɪ ꜰᴏʟʟᴏᴡᴇᴅ ɪɴ ʜɪꜱ ꜱᴛᴇᴘꜱ . ' - ᴛʜᴇ ʜᴀɴᴅ ᴛʜᴀᴛ ꜰᴇᴇᴅꜱ .
-    <p align="left"> <img width="100" height="60" src="https://64.media.tumblr.com/0386a511d9e4e2747bd4addce4a79cc0/e281c00d692ec054-a3/s250x400/403906bd7d37069c142307073d4fcbb352b4f94c.pnj"> </p>
-<p align="right"> '. ​🇦​ ​🇸​​🇼​​🇪​​🇪​​🇹​ ​🇧​​🇴​​🇺​​🇶​​🇺​​🇪​​🇹​ ​🇴​​🇫​ ​🇫​​🇱​​🇴​​🇼​​🇪​​🇷​​🇸​ ​🇩​​🇷​​🇪​​🇸​​🇸​​🇪​​🇩​ ​🇮​​🇳​ ​🇵​​🇷​​🇪​​🇹​​🇹​​🇾​ ​🇱​​🇮​​🇪​​🇸​ , ​🇧​​🇺​​🇹​ ​🇪​​🇻​​🇪​​🇳​ ​🇹​​🇭​​🇴​​🇺​​🇬​​🇭​ ​🇹​​🇭​​🇪​​🇾​❜​🇷​​🇪​ ​🇵​​🇱​​🇦​​🇸​​🇹​​🇮​​🇨​ , ​🇾​​🇴​​🇺​ ​🇸​​🇹​​🇮​​🇱​​🇱​ ​🇼​​🇦​​🇳​​🇹​ ​🇹​​🇭​​🇪​​🇲​ ​🇷​​🇮​​🇬​​🇭​​🇹​ ?. ' - Trickle , Mesmerizer Cover .
-      <p align="left"> <img width="100" height="60" src="https://64.media.tumblr.com/4ee0c166b7225cf029dfad23bf808ea8/bb2346013ee5866c-2f/s250x400/96b72c438126fa385ddedea5f1a4dd5fbe40b5bc.pnj"> </p>
-<p align="right"> '. ​🇩​​🇮​​🇸​​🇹​​🇺​​🇷​​🇧​​🇮​​🇳​​🇬​ ​🇹​​🇭​​🇪​ ​🇴​​🇷​​🇩​​🇪​​🇷​ ​🇴​​🇫​ ​🇹​​🇭​​🇮​​🇳​​🇬​​🇸​ , ​🇲​​🇪​​🇦​​🇳​​🇸​ ​🇾​​🇴​​🇺​ ​🇳​​🇪​​🇪​​🇩​ ​🇹​​🇴​ ​🇲​​🇦​​🇰​​🇪​ ​🇦​ ​🇸​​🇦​​🇨​​🇷​​🇮​​🇫​​🇮​​🇨​​🇪​ . ' - ​🇱​​🇮​​🇻​​🇪​ ​🇮​​🇳​ ​🇱​​🇮​​🇫​​🇪​ .
-        <p align="left"> <img width="100" height="60" src="https://64.media.tumblr.com/82ca87f2b3b8741bafed64662ed56db5/938d7d33604d19fc-8c/s250x400/aa518a19c9f7547da890941de10c2578c59a9d30.pnj"> </p>
-<p align="right"> '. ​​🇼​​🇦​​🇷​​🇷​​🇮​​🇴​​🇷​​🇸​ ​🇦​​🇱​​🇱​ , ​🇭​​🇪​​🇪​​🇩​ ​🇲​​🇾​ ​🇨​​🇦​​🇱​​🇱​ , ​🇫​​🇴​​🇱​​🇰​​🇻​​🇦​​🇳​​🇬​​🇷​ ​🇦​​🇼​​🇦​​🇮​​🇹​​🇸​ . ' - ​🇰​​🇲​​🇧​ - ​🇲​​🇴​​🇷​​🇵​​🇭​​🇴​ ​🇰​​🇳​​🇮​​🇬​​🇭​​🇹​ .
-          <p align="left"> <img width="100" height="60" src="https://64.media.tumblr.com/d58909c7399fc5c91704be82de60a85f/ef555bd9f675939d-ab/s100x200/b0d97007cbf7816e88187659ecb61db7b871b4e1.gifv"> </p>
-<p align="right"> '. ꜱᴛᴀʟʟɪɴɢ ᴏɴʟʏ ɢᴏᴇꜱ ꜱᴏ ꜰᴀʀ ᴡʜᴇɴ ʏᴏᴜ'ᴠᴇ ɢᴏᴛ ᴀ ʜᴇᴀᴅ ꜱᴛᴀʀᴛ . ' - ​​🇦​​🇷​​🇪​ ​🇾​​🇴​​🇺​ ​🇧​​🇴​​🇷​​🇪​​🇩​ ​🇾​​🇪​​🇹​ ? .
-            <p align="left"> <img width="100" height="60" src="https://64.media.tumblr.com/0466f61841aca151126afa1fa42388a2/5921d166092ab148-6e/s100x200/600607e04c74aa520f39e0dedf4806cce65e606c.gifv"> </p>
-<p align="center"> '. ​🇮​ ​🇨​​🇦​​🇳​ ​🇹​​🇪​​🇱​​🇱​ ​🇯​​🇺​​🇸​​🇹​ ​🇼​​🇭​​🇦​​🇹​ ​🇾​​🇴​​🇺​ ​🇼​​🇦​​🇳​​🇹​ , ​🇾​​🇴​​🇺​ ​🇩​​🇴​​🇳​❜​🇹​ ​🇼​​🇦​​🇳​​🇹​ ​🇹​​🇴​ ​🇧​​🇪​ ​🇦​​🇱​​🇴​​🇳​​🇪​ . ​🇦​​🇳​​🇩​ ​🇮​ ​🇨​​🇦​​🇳​ ​🇸​​🇦​​🇾​ ​🇮​​🇹​❜​🇸​ ​🇼​​🇭​​🇦​​🇹​ ​🇾​​🇴​​🇺​ ​🇰​​🇳​​🇴​​🇼​ , ​🇧​​🇺​​🇹​ ​🇾​​🇴​​🇺​❜​🇻​​🇪​ ​🇰​​🇳​​🇴​​🇼​​🇳​ ​🇮​​🇹​ ​🇹​​🇭​​🇪​ ​🇼​​🇭​​🇴​​🇱​​🇪​ ​🇹​​🇮​​🇲​​🇪​ . ' 
-  <p align="right"> - ​🇹​​🇼​​🇴​ ​🇩​​🇴​​🇴​​🇷​​🇸​ ​🇨​​🇮​​🇳​​🇪​​🇲​​🇦​ ​🇨​​🇱​​🇺​​🇧​ - ​🇼​​🇭​​🇦​​🇹​ ​🇾​​🇴​​🇺​ ​🇰​​🇳​​🇴​​🇼​ .
-<p align="left"> PONY TOWN INFORMATION!
+<p align="center"> <img width="600" height="600" src="https://i.pinimg.com/736x/16/40/c2/1640c280936a4497b898d7aa53fa6abf.jpg"> </p>
+<p align="right"> <img width="200" height="100" src="https://64.media.tumblr.com/7b7e60a6c32803e45541ce8ece6c8836/eb640f1d324b8ede-8b/s640x960/4f3f36147c886015738049f6141e2619df6f8d89.pnj"> </p>
+<p align="center"> ་࿐ ꪮꪜꪀꪖ᥅᥅꠸ꫀ / ꪮꪜꪑꪖᧁᧁꪮꪻ / ᛕ꠸ꪀᧁ ་࿐
+<p align="center"> <img width="250" height="50" src="https://64.media.tumblr.com/1af77e09ad13582284464e6623472051/eb5a5b9483c2aaf0-d8/s400x600/e26a15ae319861954645eb344ffbda515cef3a71.pnj">
+<p align="center"> ⚚ ꪻꫝꫀꪗ/ꫝꫀ᥅ ꪮ᥅ ꪖꪀꪗ . ⚚
+<p align="center"> <img width="250" height="50" src="https://64.media.tumblr.com/a3b5e087df61678ba3595f6fb6cea5bb/eb5a5b9483c2aaf0-7d/s400x600/a96b17c157b8674c948b83de5e082d81b5426d5c.pnj"> </p>
+<p align="left"> ρꪮꪀꪗ ꪻꪮ᭙ꪀ ꠸ꪀᠻꪮ᥅ꪑꪖꪻ꠸ꪮꪀ ! 
+<p align="left"> ⊹ ࣪ ˖
   <p align="left"> 11:37 PM[system] Congratulations! You delivered the notes in 43.691 seconds! You've beaten your personal best of 45.379 seconds (a 1.688s improvement)!
-<p align="left"> Playtime 6003.2 hours : : Playtime 250.1 Days : : Account creation date 11th January 2021 (Used to have an account in 2019!)
+<p align="left"> Playtime 6093.5 hours : : Playtime 253.9 days : : Account creation date 11th January 2021 (Used to have an account in 2019!)
   <p align="left"> #1st Zombie Ghost [COD] creator! : : #1st Unstable_Day skin! : : #1st Tony Stark skin in 2019!
 <p align="left"> ASL/ALS and 600th regiment veteran!
+<p align="left"> ⊹ ࣪ ˖
+<p align="center"> <img width="100" height="75" src="https://64.media.tumblr.com/58e544801afeed3d20d05d9584ace53a/490da954fc7be9bd-d3/s640x960/80b5f90a2246e008fc71b819e33f3b1844c38983.pnj"> ⊹ ࣪ ˖ <img width="100" height="75" src="https://64.media.tumblr.com/284a6ce2841406aed3e7daaf9e8e160c/490da954fc7be9bd-0a/s640x960/4e0abbd6b07a18a4b3c30df0cd4780c485f336cd.pnj">⊹ ࣪ ˖ <img width="100" height="75" src="https://64.media.tumblr.com/156c779a2d620a1f53aae6087965ca69/d9a8dafb3a08856f-38/s250x400/2994fffd9c3c2af2f7882364b4fbfd69046eb141.gifv"> </p>
