@@ -1,5 +1,5 @@
 <p align="center"> <img width="600" height="600" src="https://i.pinimg.com/736x/16/40/c2/1640c280936a4497b898d7aa53fa6abf.jpg"> </p>
-<p align="right"> <img width="200" height="100" src="https://64.media.tumblr.com/7b7e60a6c32803e45541ce8ece6c8836/eb640f1d324b8ede-8b/s640x960/4f3f36147c886015738049f6141e2619df6f8d89.pnj"> </p>
+<p align="right"> <img width="250" height="50" src="https://64.media.tumblr.com/f4ff6e2525f9f3a50a69884bfa6070cc/eb5a5b9483c2aaf0-92/s400x600/447ce0356c319a7fd10262cecb4fc9b220e39a50.pnj"> </p>
 <p align="center"> ་࿐ ꪮꪜꪀꪖ᥅᥅꠸ꫀ / ꪮꪜꪑꪖᧁᧁꪮꪻ / ᛕ꠸ꪀᧁ ་࿐
 <p align="center"> <img width="250" height="50" src="https://64.media.tumblr.com/1af77e09ad13582284464e6623472051/eb5a5b9483c2aaf0-d8/s400x600/e26a15ae319861954645eb344ffbda515cef3a71.pnj">
 <p align="center"> ⚚ ꪻꫝꫀꪗ/ꫝꫀ᥅ ꪮ᥅ ꪖꪀꪗ . ⚚
